@@ -61,3 +61,5 @@ The content calendar follows a balanced mix of formats to maintain audience inte
 
 ![Image](https://github.com/user-attachments/assets/6ca24aab-9a46-49ec-add0-1079d1daa502)
 
+![Image](https://github.com/user-attachments/assets/895e3640-5379-420b-b41e-5185c43bb86a)
+
